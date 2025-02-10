@@ -13,3 +13,7 @@
  ~~This reminds me of When I'm Reading a book i like when the author uses the strike through to show what the character might have been thinking.~~	
 
 This is the Link to a **[Baby Koala](https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Faslxkf2n0y621.jpg&rdt=56019)**
+
+## Two of my New Years Goals was 
+- [ ] Learn Spanish 
+- [ ]  Read 24 books this year.
