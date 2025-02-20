@@ -1,5 +1,5 @@
 # Mariana Garcia
-## I'll Share so fun Facts About myself.
+## I'll Share some fun Facts About myself.
 
  I was Born in New Mexico, I lived there for about seven years before I moved to Illinois.
 
